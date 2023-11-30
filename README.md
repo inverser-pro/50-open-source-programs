@@ -5,6 +5,4 @@
 
 ### [Смотреть на YouTube](http://www.youtube.com/watch?v=TAlsejcM_AQ "Смотреть на YouTube")
 
-[Смотреть](https://www.youtube.com/watch?v=TAlsejcM_AQ "Смотреть")
-
 [![50 программ с открытым исходным кодом](https://i3.ytimg.com/vi/TAlsejcM_AQ/maxresdefault.jpg "50 программ с открытым исходным кодом")](http://www.youtube.com/watch?v=TAlsejcM_AQ "50 программ с открытым исходным кодом")
